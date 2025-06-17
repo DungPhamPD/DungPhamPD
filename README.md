@@ -5,7 +5,7 @@ im so friendly n easy-going,</br>
 If u free, lets fking go for coffee together,.</br>
 And have an awful day? u got many chances to fix ur mistake! take ur beark, lol</br>
 about me : https://www.instagram.com/williams_pd08/</br> 
-Hasta la vista, babi
+Hasta la vista, bae
 
 
 
